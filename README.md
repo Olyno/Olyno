@@ -1,1 +1,1 @@
-![My profile banner](https://github.com/Olyno/Olyno/assets/25107942/75548e72-ce6c-46a5-819a-63e22cada1ab)
+![My profile banner](https://github.com/Olyno/Olyno/assets/25107942/9a8d8373-bac9-48a7-a34f-f06c62f445c3)
